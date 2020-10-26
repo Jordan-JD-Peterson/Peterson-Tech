@@ -21,6 +21,11 @@ TO Peterson Tech.
 
 
 
+| ---                                                          | ---                                                          |
+| ------------------------------------------------------------ | ------------------------------------------------------------ |
+| ![2020-08-21T09-29-29-Canopy-Draft-for-La-French-Chocolatine](D:\ARCHIVE\2020\2020-10-25 Peterson-Tech-Github-Repo\Peterson-Tech\images\2020-08-21T09-29-29-Canopy-Draft-for-La-French-Chocolatine.png) | ![2020-09-05T16-28-Welding-Canopy-Frame-for-La-French-Chocolatine-image-reduced](D:\ARCHIVE\2020\2020-10-25 Peterson-Tech-Github-Repo\Peterson-Tech\images\2020-09-05T16-28-Welding-Canopy-Frame-for-La-French-Chocolatine-image-reduced.jpg) |
+|                                                              |                                                              |
+
 
 
 ### Decorative Window Bars
