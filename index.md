@@ -13,7 +13,13 @@ TO Peterson Tech.
 
 ## Examples Of Our Work
 
-![2020-09-20 Custom Awning and Sign For French Chocolatine Bakery](D:\ARCHIVE\2020\2020-10-25 Peterson-Tech-Github-Repo\Peterson-Tech\images\2020-09-20 Custom Awning and Sign For French Chocolatine Bakery.jpg)
+
+
+### Custom Shade Awning for La French Chocolatine Bakery, Bacong, Negros Oriental, Philippines
+
+
+
+<img src="images\2020-09-20 Custom Awning and Sign For French Chocolatine Bakery.jpg" alt="2020-09-20 Custom Awning and Sign For French Chocolatine Bakery" style="zoom: 25%;" />
 
 
 
