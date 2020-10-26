@@ -17,9 +17,9 @@ TO Peterson Tech.
 
 ### Custom Shade Awning for La French Chocolatine Bakery, Bacong, Negros Oriental, Philippines
 
+![2020-09-20-Custom-Awning-and-Sign-For-French-Chocolatine-Bakery-shrunk](images\2020-09-20-Custom-Awning-and-Sign-For-French-Chocolatine-Bakery-shrunk.jpg)
 
 
-<img src="images\2020-09-20 Custom Awning and Sign For French Chocolatine Bakery.jpg" alt="2020-09-20 Custom Awning and Sign For French Chocolatine Bakery" style="zoom: 25%;" />
 
 
 
